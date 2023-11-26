@@ -1,1 +1,1 @@
-# web-lab7
+# kxrxch.github.io/web-lab7/
